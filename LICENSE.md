@@ -1,4 +1,4 @@
-# 
+# Top Bitdefender Total Security plugins for Mac OS | Native Bitdefender Total Security plugins for PC Windows. Featuring high-speed servers and ip reputation checking — optimized for maximum performance on every platform.
 
 
 
